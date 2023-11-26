@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Bitanya Sisay
 - 👀 I’m interested in maths and physics 
-- 🌱 I’m currently learning hidh school
+- 🌱 I’m currently learning high school
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
